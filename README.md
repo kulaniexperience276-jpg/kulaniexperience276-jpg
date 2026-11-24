@@ -6,4 +6,4 @@ Hi Everyone, my name is Kulani Sithole.
 🤔 I’m looking for help with developing and advancing my software skills.
 📫 Reach me here: kulaniexperience276@gmail.com.
 😄 Pronouns: Mr
-⚡ Fun fact: I have a great mind and i understand concepts faster.
+⚡ Fun fact: I have a great mind and I understand concepts faster.
